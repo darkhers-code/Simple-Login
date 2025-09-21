@@ -5,22 +5,16 @@ Description
 CYBER WORLD🌍
 Links
 
-Official Site
-darkhers.blogspot.com
+www.darkhers.blogspot.com
 
-Instagram
-instagram.com/darkhers
+www.instagram.com/darkhers
 
-Facebook
-facebook.com/darkhers
+www.facebook.com/darkhers
 
-Twitter
-twitter.com/Dark_Hers
+www.x.com/Dark_Hers
 
-TikTok
-tiktok.com/@darkhers
+www.tiktok.com/@darkhers
 
-Pinterest
-pinterest.co.uk/darkhers
+www.pinterest.co.uk/darkhers
 
 www.youtube.com/@darkhers
